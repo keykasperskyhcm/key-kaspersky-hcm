@@ -10,3 +10,8 @@ Phát hiện và ngăn chặn những trang web lưu trữ và theo dõi ngườ
 An toàn giao dịch tài chính(Safe Money): chức năng này được cải tiến cho hiệu quả hơn
 
 Liên hệ 0903074736 hoặc website http://keykaspersky.com để được tư vấn và mua hàng giá ưu đãi tốt nhất
+http://keykasperskyhcm.weebly.com/
+https://www.crunchbase.com/product/key-kaspersky-hcm
+https://keykasperskyhcm.newswire.com/
+http://keykasperskyhcm.livejournal.com/538.html
+https://www.instapaper.com/p/5772683
