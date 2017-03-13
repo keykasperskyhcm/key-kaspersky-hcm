@@ -14,11 +14,12 @@ Ngân hàng Vietcombank
 Số tài khoản: 0421000486958
 Chủ tài khoản: Lê Đình Chinh
 Chi nhánh: Quận 10, Hồ Chí Minh
+
 Thông tin liên hệ:
-•	Địa chỉ: 519 Âu Cơ, Tân Phú, HCM
-•	Website: http://keykaspersky.com
-•	Hotline: 0903 07 47 36
-•	Email: keykasperskyhcm@gmail.com 
+Địa chỉ: 519 Âu Cơ, Tân Phú, HCM
+Website: http://keykaspersky.com
+Hotline: 0903 07 47 36
+Email: keykasperskyhcm@gmail.com 
 
 Liên hệ với chung tôi qua mạng xã hội: 
 https://keykasperskyhcm.newswire.com/
