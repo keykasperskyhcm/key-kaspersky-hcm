@@ -35,5 +35,7 @@ https://www.diigo.com/user/keykasperskyhcm
 https://www.evernote.com/shard/s731/sh/3d17043c-4e54-4b03-94ad-cf3296d60ed5/0bfb80aa523c0ef34b779c39d4aac93f
 https://getpocket.com/@925TZAfrg5918p6e3ed593fdD2p4g0x5c5aCb8H4e0kdt1fc6em7aS4fL3bGVrQ9
 https://1drv.ms/o/s!ApS9N5xpRY6HdyW2tYhxadI4EpE
+https://sites.google.com/view/keykaspersky/home
+
 
 
